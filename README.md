@@ -12,7 +12,7 @@
 
 - 👯 I’m looking to collaborate on **OpenSource Projects**
 
-- 👨‍💻 All of my projects are available at Here
+- 👨‍💻 All of my projects are available Here
 
 - 📫 How to reach me **Mr.khan324561@gmail.com**
 
